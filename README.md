@@ -3,5 +3,5 @@
 - 🌱 Google
 - 💞️ YouTube
 - 📫 Twitch
-- 😄 
-- ⚡ 
+- 😄 Facebook
+- ⚡ Instagram
